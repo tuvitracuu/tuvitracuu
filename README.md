@@ -109,7 +109,7 @@ Một số trường hợp có thể gặp duyên muộn hoặc kết hôn rồi
 
 Để giảm thiểu ảnh hưởng của sao Phá Toái cung Phu Thê, người có cách cục này nên:
 
-*   **Chọn thời điểm kết hôn thích hợp**: Tránh năm hạn, năm có nhiều sát tinh hoặc đại vận xấu chiếu Mệnh – Thân – Phu Thê. Nếu trong lá số có **[hữu bật cung phu thê](https://soctrip.com/post/b6ee3260-40fe-11f0-a319-230e4849faed)**, đây là một yếu tố hỗ trợ tốt, giúp tăng khả năng gặp được người bạn đời biết cảm thông, nâng đỡ – nên tận dụng thời điểm Hữu Bật vượng để tiến hành hôn sự.
+*   **Chọn thời điểm kết hôn thích hợp**: Tránh năm hạn, năm có nhiều sát tinh hoặc đại vận xấu chiếu Mệnh – Thân – Phu Thê. Nếu trong lá số có **[hữu bật cung phu thê](https://crypto.jobs/talent/profile/chuyen-gia-tu-vi-2)**, đây là một yếu tố hỗ trợ tốt, giúp tăng khả năng gặp được người bạn đời biết cảm thông, nâng đỡ – nên tận dụng thời điểm Hữu Bật vượng để tiến hành hôn sự.
     
 *   **Giao tiếp thường xuyên với bạn đời**: Tránh để hiểu lầm tích tụ, cần học cách lắng nghe và giải tỏa đúng lúc.
     
